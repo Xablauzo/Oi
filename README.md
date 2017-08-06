@@ -1,1 +1,1 @@
-# eddsdsdsds
+# Utilize seu nick do servidor !
